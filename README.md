@@ -1,0 +1,1 @@
+Problem statement:  https://www.geektrust.com/coding/detailed/power-of-g-man
